@@ -1,12 +1,12 @@
 # Danya Angeline M. Sabio
-## CN 36 9-Arrowsmith
+ CN 36 9-Arrowsmith
 
-### Hobbies
+## Hobbies
 - Watching K-dramas
 - Listening to K-pop
 - Baking pastries
 
- #### Favorite K-pop Idols
+ ### Favorite K-pop Idols
  - Jimin of BTS
  - Jeonghan of SVT
  - Jake of ENHYPEN
