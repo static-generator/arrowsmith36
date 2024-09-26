@@ -1,8 +1,20 @@
-# Arrowsmith36
-## CN 36 **Danya** *Angeline* Sabio
+# Danya Angeline M. Sabio
+## CN 36 9-Arrowsmith
 
-### Social Media
-- [Facebook](https://www.facebook.com/)
-- [Instagram](https://www.instagram.com/)
+### Hobbies
+- Watching K-dramas
+- Listening to K-pop
+- Baking pastries
 
-![BTS’s Jimin Drives ARMY Crazy In New “Boyfriend Material” Photos](https://lh3.googleusercontent.com/1hY4ImymaFvnfmEDluQe2VlF2XZbv-4fWz2Ys7ZXN2woLxQ7O3AYRvKFOSpeICehg8tHpmupwpfGf7tpt_RuTYI-q9t4bsNWqX18IXKfwFFj1Q=nu-e365-rj-q80-w925)
+ #### Favorite K-pop Idols
+ - Jimin of BTS
+ - Jeonghan of SVT
+ - Jake of ENHYPEN
+ - Hyunjin of Stray Kids
+ - San of Ateez
+ - Hyungwon of MONSTA X
+ - Wonyoung of IVE
+ - Hanni of New Jeans
+ - Lisa of Blackpink
+ - Yeji of ITZY
+ - Yun-jin of Le Sserafim
